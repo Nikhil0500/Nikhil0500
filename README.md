@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nikhil0500
+- 👋 Hi, I’m Nikhil
 -  Currently a beginner. 
 -  Learning.. 
 
